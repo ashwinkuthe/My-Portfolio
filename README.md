@@ -1,2 +1,2 @@
 # My-Portfolio
-If you are egar to know what's inside,take a while and come inside.
+If you have egar to know what's inside,take a while and come inside.
